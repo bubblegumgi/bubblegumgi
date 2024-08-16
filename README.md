@@ -1,4 +1,4 @@
-## bom diaaaaa... ou boa noite... ou tarde... OIIII😁
+![0ikeu-heeseung](https://github.com/user-attachments/assets/d31c5abd-eb07-4e47-9194-2ce2f675a263)## bom diaaaaa... ou boa noite... ou tarde... OIIII😁
  
 my name is Gisele... sorry, sorry. esqueci que há pessoas que não falam ingês tão bem quanto eu. (é ironia, pelo amor de Deeeeeus)😽
 
@@ -12,3 +12,6 @@ IT'S NOT OUR FATE!!!!!!!!!!!!!💥
 Enfim, enfim, é só isso que eu tenho para falar de mim :)
 
 ## 😘 @giselebtlzz
+
+
+![](https://media1.tenor.com/m/PS1taiSgATQAAAAC/0ikeu-heeseung.gif)
