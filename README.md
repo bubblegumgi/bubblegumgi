@@ -11,7 +11,7 @@ IT'S NOT OUR FATE!!!!!!!!!!!!!💥
 
 Enfim, enfim, é só isso que eu tenho para falar de mim :)
 
-## 😘 @giselebtlzz
+## 😘 [@giselebtlzz] (https://www.instagram.com)
 
 
 ![](https://media1.tenor.com/m/PS1taiSgATQAAAAC/0ikeu-heeseung.gif) 
