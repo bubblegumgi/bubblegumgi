@@ -1,4 +1,4 @@
-![0ikeu-heeseung](https://github.com/user-attachments/assets/d31c5abd-eb07-4e47-9194-2ce2f675a263)## bom diaaaaa... ou boa noite... ou tarde... OIIII😁
+## bom diaaaaa... ou boa noite... ou tarde... OIIII😁
  
 my name is Gisele... sorry, sorry. esqueci que há pessoas que não falam ingês tão bem quanto eu. (é ironia, pelo amor de Deeeeeus)😽
 
