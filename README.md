@@ -1,6 +1,6 @@
 ## bom diaaaaa... ou boa noite... ou tarde... OIIII😁
  
-my name is Gisele... sorry, sorry. esqueci que há pessoas que não falam ingês tão bem quanto eu. (é ironia, pelo amor de Deeeeeus)😽
+my name is Gisele... sorry, sorry. esqueci que há pessoas que não falam inglês tão bem quanto eu. (é ironia, pelo amor de Deeeeeus)😽
 
 Eu estou estudand no [Alura](https://www.alura.com.br) :) Quero? NÃO! Mas é o que temos...💋
 
